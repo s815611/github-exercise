@@ -8,6 +8,7 @@ add
 [![pic](http://game.playwares.com/xe/files/attach/images/423600/220/942/016/TERA_ScreenShot_20110112_235442.jpg)](https://youtu.be/X1YCccDMY-E)
 
 
+[d](https://docs.google.com/spreadsheets/d/19VlU7tbO-ezDE2p82Eg13PewScqyr3NeyFk6bnILNzU/edit?usp=sharing)
 
 
 
